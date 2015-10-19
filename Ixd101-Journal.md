@@ -22,7 +22,7 @@ The realisation; __*I belong on the 3rd floor.*__
 
 >Q: Did he fall or _was he pushed?_
 
-![Pic of Stairs](file:///Users/barryrooney/Desktop/1450093-1.jpg)
+[Pic of Stairs](http://ecx.images-amazon.com/images/I/71umScQ6lSL._SX355_.jpg)
 
 >A: Definately PUSHED (Himself)!
 
@@ -32,7 +32,7 @@ The realisation; __*I belong on the 3rd floor.*__
 
 ## THE ARRIVAL
 
-![Pic of Stairs](file:///Users/barryrooney/Desktop/2009853.jpg.jpg)
+[Pic of Stairs](file:///Users/barryrooney/Desktop/2009853.jpg.jpg)
 
 And so it begins, better late than never I walk nervously into the Conor Lecture theatre to learn a little bit about my old friend Gutenberg, and the rest is... _hiSTORY_
 
